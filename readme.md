@@ -3,7 +3,7 @@
 TikTok Video and Music Downloader with no Watermark v1.3 Latest<br>
 
 DEMO:<a href="http://preview.codecanyon.net/item/tiktok-video-downloader-with-ajax/full_screen_preview/26284627?_ga=2.182123943.183596393.1592967016-1925460776.1592845308">DEMO</a><br>
-BUY:<a href="https://www.paypal.me/MRamonal">BUY $10</a><br>
+BUY:<a href="https://www.paypal.me/MRamonal">BUY $9</a><br>
 Full updates as soon as they released.<br>
 letitviralz[at]gmail.com
 
